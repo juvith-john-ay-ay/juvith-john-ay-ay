@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->Welcome to my program
-here in the Philippiones
+here in the Philippines
 
 
